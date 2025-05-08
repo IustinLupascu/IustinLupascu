@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IustinLupascu
+- 👀 I’m interested in Football and new tehnologies
+- 🌱 I’m currently learning Autodesk besics 
+- 💞️ I’m looking to collaborate on new projects in any field
+- 📫 How to reach me: iustin159@gmail.com
